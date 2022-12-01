@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kedar Oza
-- 👀 I’m interested in HIRING ELON MUSK (JUST KIDING)
+- 👀 I’m interested in HIRING ELON MUSK (JUST KIDDING)
 - 🌱 I’m currently learning HTML CSS JAVASRIPT AND PYTHON 
 - 💞️ I’m looking to collaborate on NOTHING STILL(CUZ I AM STILL LEARNING)
 - 📫 How to reach me email- kedaroza670@gmail.com
